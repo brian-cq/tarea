@@ -6,6 +6,8 @@ Un día común, Saulis se despertó y salió corriendo.
 
  cuento-infantil-nina-olfato
 
++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
+
 – ¡Mami!, ¡mami!. 
 
 – Dijo gritando Saulis.
@@ -25,6 +27,8 @@ La mamá salió a ver que pasaba fuera, mientras Saulis estaba agitada e impresi
 – ¡Oh no! ¡Saulis corre!!.
 
  – Gritó su mamá.
+
+++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++
 
 Saulis corriendo se escondió bajo su cama. La mamá pensó que Saulis mentía pero en realidad Saulis había visto los abogados de su padre, 
 
